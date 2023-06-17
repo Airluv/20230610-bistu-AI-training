@@ -1,0 +1,1 @@
+# 20230610-bistu-AI-training
